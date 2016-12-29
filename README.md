@@ -1,2 +1,3 @@
 # fuzzy-bassoon
-hello-worldfirst of the many projects i will start someday :D .
+Sweet dreams are made of these who am i to disegree
+follow the thru the seven seas
